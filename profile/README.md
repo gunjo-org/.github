@@ -1,3 +1,3 @@
-The term "Gunjo" signifies the concept of "blue beyond the sea", thereby denoting a profound connection to the vast expanse of the ocean.
-The Foundation's primary research domains encompass the fields of telecommunications and maritime affairs.
-Its operational bases are situated in Osaka and Honiara, and its official website is available at https://foundation.gunjo.org/.
+The term "Gunjo" means "blue beyond the sea", expressing a deep connection to the ocean.
+We are a foundation that conducts research in the field of telecommunications and maritime affairs.
+Its operational bases are located in Osaka and Honiara, and its official website is available at https://foundation.gunjo.org/.
