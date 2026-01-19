@@ -1,3 +1,4 @@
-The name of us, "Gunjo", means "blue beyond the sea", expressing a deep connection to the ocean.
-We are a foundation that conducts research in the fields of telecommunications and maritime.
-And our operational bases are located in Osaka and Honiara.
+The Gunjo Foundation is dedicated to preserving and passing on records of telecommunications technology and modern maritime history, ensuring they are not lost to time.
+The operations are based in Osaka, Japan, and Honiara, Solomon Islands.
+The name “Gunjo” signifies “the blue beyond the sea”, symbolizing our deep connection to the ocean.
+The Foundation was established on April 1, 2025, as a new organization succeeding all operations -- excluding memorial activities -- from its predecessor.
